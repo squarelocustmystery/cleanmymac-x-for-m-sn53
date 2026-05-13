@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CleanMyMac X for macOS script with instant CleanMyMac X for macOS Script | ad-blocker + junk-file-cleanup. Featuring ad-blocker and junk-file-cleanup, it's the
 
 
 
